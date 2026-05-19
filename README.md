@@ -1,2 +1,1 @@
-can ke FB k NC C
-
+can ke FB
