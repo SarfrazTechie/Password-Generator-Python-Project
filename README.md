@@ -1,2 +1,2 @@
-can ke FB k NC CV jb
+can ke FB k NC C
 
