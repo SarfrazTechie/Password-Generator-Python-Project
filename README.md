@@ -1,3 +1,2 @@
 can ke FB k NC CV jb
-skhhsksvks his hkjk
-hkcsos
+skhhsksvks his h
